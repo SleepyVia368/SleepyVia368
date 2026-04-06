@@ -1,16 +1,17 @@
-## Hi there 👋
+~ ★ 𝐇𝐞𝐥𝐥𝐨 !!
 
-<!--
-**SleepyVia368/SleepyVia368** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
++:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-Here are some ideas to get you started:
+~ ★ 17yrs / 10/25/08 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+~ ★ https://sleepyviaa368.straw.page/
+
+~ ★ c+h freely, sometimes w2int, I might be off tab. Im slow with respones so just give me a second. I might be a little dry at first but I promise I will start speaking eventually. I might come off as rude, if I do, I apologize.
+
+~ ★ Anyone can int / Simple DNI (just don't be weird)
+
++:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
+
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/948e82e8-597e-45f5-8265-826bd80fdb2e" />
+
++:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
