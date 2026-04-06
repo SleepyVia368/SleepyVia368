@@ -8,7 +8,7 @@
 
 ~ ★ c+h freely, sometimes w2int, I might be off tab. Im slow with respones so just give me a second. I might be a little dry at first but I promise I will start speaking eventually. I might come off as rude, if I do, I apologize.
 
-~ ★ Anyone can int / Simple DNI (just don't be weird)
+~ ★ Anyone can int / Simple dni (just don't be weird)
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
