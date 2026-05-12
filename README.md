@@ -8,12 +8,11 @@
 
 ~ ★ c+h freely, sometimes w2int, I might be off tab.
 
-~ ★ Anyone can int / Simple dni (just don't be weird)
+~ ★ Anyone can int (SIG PEOPLE PLS INT) / Simple dni (just don't be weird)
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/9d694826-1444-42ed-a131-5fa6f23b3e29" />
+<img width="1062" height="735" alt="image" src="https://github.com/user-attachments/assets/619a377a-f0ed-4c2c-a7da-695cb1acd31b" />
 
-Art by @ pewrri on X
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
