@@ -12,7 +12,7 @@
 
 ~ ★ Anyone can int (SIG PEOPLE PLS INT) / Simple dni (just don't be weird)
 
-~ ★ Please do be patient with me, I'm heavily dyslexic and it might take me a moment to understand what your saying. I'm also very socially akwared so just be aware.
+~ ★ Please do be patient with me, I'm heavily dyslexic and it might take me a moment to understand what your saying. I'm also very socially awkward so just be aware.
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
