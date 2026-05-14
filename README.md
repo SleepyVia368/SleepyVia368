@@ -18,6 +18,8 @@
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="1062" height="735" alt="image" src="https://github.com/user-attachments/assets/619a377a-f0ed-4c2c-a7da-695cb1acd31b" />
+<img width="736" height="790" alt="image" src="https://github.com/user-attachments/assets/b2c6e3c7-299c-46ff-944d-10b0a2b2e3ee" />
+
+Art by edwarlie06 on twitter
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
