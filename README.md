@@ -8,7 +8,7 @@
 
 ~ ★ https://sleepyvia368.atabook.org/
 
-~ ★ I'm currently hyperfixated on SIG games. At the moment it's JCC / Deadplate
+~ ★ I'm currently hyperfixated on SIG games. At the moment it's Deadplate / JCC
 
 ~ ★ c+h is heavily encouraged, please come sit with me even if I may not know your fandom! I love meeting new people! Sometimes w2int, I might be off tab.
 
