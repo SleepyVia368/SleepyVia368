@@ -18,8 +18,8 @@
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="1108" height="839" alt="image" src="https://github.com/user-attachments/assets/ee759ee1-1b98-465e-a96b-398e84a293af" />
+<img width="576" height="511" alt="image" src="https://github.com/user-attachments/assets/bfc42b45-aa0f-4dcb-8f31-451273648f69" />
 
-Art by SomeFish2911 on Twitter !
+Art by rabbettsie  on Twitter !
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
