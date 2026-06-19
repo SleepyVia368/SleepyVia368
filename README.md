@@ -18,8 +18,7 @@
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="576" height="511" alt="image" src="https://github.com/user-attachments/assets/bfc42b45-aa0f-4dcb-8f31-451273648f69" />
+<img width="736" height="790" alt="image" src="https://github.com/user-attachments/assets/c4766042-0e00-4839-b6d0-8a7d17b1b6f6" />
 
-Art by rabbettsie  on Twitter !
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
