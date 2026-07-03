@@ -18,7 +18,7 @@
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/797c16ab-d23b-4351-b3cd-8cdf8fd1a5d0" />
+<img width="599" height="707" alt="image" src="https://github.com/user-attachments/assets/fe941182-747f-43a8-8798-27f83f62e76b" />
 
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
