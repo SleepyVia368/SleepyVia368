@@ -8,7 +8,7 @@
 
 ~ ★ https://sleepyvia368.atabook.org/
 
-~ ★ I'm currently hyperfixated on SIG games. At the moment it's, Dead Plate
+~ ★ I'm currently hyperfixated on Minecraft ARGs. At the moment it's, A Regect
 
 ~ ★ c+h is heavily encouraged, please come sit with me even if I may not know your fandom! I love meeting new people! Sometimes w2int, I might be off tab.
 
@@ -18,7 +18,7 @@
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="599" height="707" alt="image" src="https://github.com/user-attachments/assets/fe941182-747f-43a8-8798-27f83f62e76b" />
+<img width="735" height="453" alt="image" src="https://github.com/user-attachments/assets/3037a96d-3630-4883-8fa4-7eb84a47cded" />
 
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
