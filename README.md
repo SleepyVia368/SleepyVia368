@@ -4,7 +4,7 @@
 
 ~ ★ 17yrs old / 10/25 
 
-~ ★ https://sleepyviaa368.straw.page/
+~ ★ https://sleepyvia368.straw.page/
 
 ~ ★ https://sleepyvia368.atabook.org/
 
