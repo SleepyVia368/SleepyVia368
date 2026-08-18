@@ -4,11 +4,9 @@
 
 ~ ★ 17yrs old / 10/25 
 
-~ ★ https://sleepyvia368.straw.page/
+~ ★ https://sleepyviaa368.straw.page
 
 ~ ★ https://sleepyvia368.atabook.org/
-
-~ ★ I'm currently hyperfixated on Minecraft ARGs. At the moment it's, A Regect
 
 ~ ★ c+h is heavily encouraged, please come sit with me even if I may not know your fandom! I love meeting new people! Sometimes w2int, I might be off tab.
 
@@ -18,7 +16,6 @@
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="735" height="453" alt="image" src="https://github.com/user-attachments/assets/3037a96d-3630-4883-8fa4-7eb84a47cded" />
-
+<img width="736" height="421" alt="image" src="https://github.com/user-attachments/assets/52f02ce0-8a75-4a2f-9b85-6640fd89ab70" />
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
