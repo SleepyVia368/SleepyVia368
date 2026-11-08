@@ -16,8 +16,6 @@
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/27d458e2-7636-4825-b8a3-bdc5c7ace4f1" />
-
-art by pureca !!
+<img width="735" height="580" alt="image" src="https://github.com/user-attachments/assets/9d5ef38c-e43b-49a5-bd07-d5e3b33dae7e" />
 
 +:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+━━━+:★:+*
